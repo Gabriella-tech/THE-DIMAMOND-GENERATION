@@ -1,2 +1,2 @@
-# THE-DIAMOND-GENERATION
+# THE-DIMAMOND-GENERATION
 Raising a generation of purpose 
